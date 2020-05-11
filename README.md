@@ -1,2 +1,1 @@
-# Radio-Time
 PODCAST AUDIO DE LUDO POTTE
